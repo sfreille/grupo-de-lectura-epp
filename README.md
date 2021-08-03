@@ -40,6 +40,9 @@ A rational theory of the size of government
 Meltzer and Richard (1981)  
 https://www.dropbox.com/s/6eo06nwuznvt6kg/JPE_1981_Meltzer_Richard_A_rational_theory_of_the_size_of_government.pdf?dl=1  
 
+A theory of competition among pressure groups for political influence  
+Becker (1983)  
+https://www.dropbox.com/s/64odz84ga6fs0q5/QJE_1983_Becker_A_theory_of_competition_among_pressure_groups_for_political_influence.pdf?dl=0  
 
 # Grabaciones
 
