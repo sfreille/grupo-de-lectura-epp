@@ -16,25 +16,25 @@ On-line en Meet. FIJAR LINK
 
 # Papers anteriores
 
-2021-08-18
-Uncertainty and the welfare economics of medical care
-Arrow, Ken
-1963
+2021-08-18  
+Uncertainty and the welfare economics of medical care  
+Arrow, Ken  
+1963  
 
-2021-09-01
-National debt in a neoclassical growth model
-Diamond, Peter
-1965
+2021-09-01  
+National debt in a neoclassical growth model  
+Diamond, Peter  
+1965  
 
-2021-09-15
-Optimal taxation and public production I: production efficiency
-Diamond, Peter and Mirrlees, James
-1971
+2021-09-15  
+Optimal taxation and public production I: production efficiency  
+Diamond, Peter and Mirrlees, James  
+1971  
 
-2021-09-29
-Optimal taxation and public production II: tax rules
-Diamond, Peter and Mirrlees, James
-1971
+2021-09-29  
+Optimal taxation and public production II: tax rules  
+Diamond, Peter and Mirrlees, James  
+1971  
 
 # Grabaciones
 
