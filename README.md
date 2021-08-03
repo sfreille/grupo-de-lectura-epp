@@ -42,7 +42,11 @@ https://www.dropbox.com/s/6eo06nwuznvt6kg/JPE_1981_Meltzer_Richard_A_rational_th
 
 A theory of competition among pressure groups for political influence  
 Becker (1983)  
-https://www.dropbox.com/s/64odz84ga6fs0q5/QJE_1983_Becker_A_theory_of_competition_among_pressure_groups_for_political_influence.pdf?dl=0  
+https://www.dropbox.com/s/64odz84ga6fs0q5/QJE_1983_Becker_A_theory_of_competition_among_pressure_groups_for_political_influence.pdf?dl=1  
+
+Manipulation of voting schemes: a general result  
+Gibbard (1973)  
+https://www.dropbox.com/s/5ce6wcfqeugvxbd/ECTA_1973_Gibbard_Manipulation_of_voting_schemes_a_general_result.pdf?dl=1
 
 # Grabaciones
 
