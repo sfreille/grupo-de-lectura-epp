@@ -28,9 +28,13 @@ Diamond, Peter
 Diamond, Peter and Mirrlees, James  
 1971  
 
-Optimal taxation and public production II: tax rules  
+[Optimal taxation and public production II: tax rules](https://www.dropbox.com/s/6vzicawabryutn6/AER_1971_Diamond_Mirrlees_Optimal_taxation_and_public_production_II_tax_rules.pdf?dl=0)  
 Diamond, Peter and Mirrlees, James  
 1971  
+
+[The political economy of the rent-seeking society](https://www.dropbox.com/s/lwst4500t1slm04/AER_1974_Krueger_The_political_economy_of_the_rent_seeking_society.pdf?dl=0)  
+Krueger, Anne  
+1974  
 
 # Grabaciones
 
