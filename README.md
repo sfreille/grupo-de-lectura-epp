@@ -20,19 +20,19 @@ On-line en Meet. FIJAR LINK
 Arrow, Ken  
 1963  
 
-[National debt in a neoclassical growth model](https://www.dropbox.com/s/4u7vvk09mtj3not/AER_1965_Diamond_National_debt_in_a_neoclassical_growth_model.pdf?dl=0)  
+[National debt in a neoclassical growth model](https://www.dropbox.com/s/4u7vvk09mtj3not/AER_1965_Diamond_National_debt_in_a_neoclassical_growth_model.pdf?dl=1)  
 Diamond, Peter  
 1965  
 
-[Optimal taxation and public production I: production efficiency](https://www.dropbox.com/s/kprrre62fxxzniu/AER_1971_Diamond_Mirrlees_Optimal_taxation_and_public_production_I_production_efficiency.pdf?dl=0)  
+[Optimal taxation and public production I: production efficiency](https://www.dropbox.com/s/kprrre62fxxzniu/AER_1971_Diamond_Mirrlees_Optimal_taxation_and_public_production_I_production_efficiency.pdf?dl=1)  
 Diamond, Peter and Mirrlees, James  
 1971  
 
-[Optimal taxation and public production II: tax rules](https://www.dropbox.com/s/6vzicawabryutn6/AER_1971_Diamond_Mirrlees_Optimal_taxation_and_public_production_II_tax_rules.pdf?dl=0)  
+[Optimal taxation and public production II: tax rules](https://www.dropbox.com/s/6vzicawabryutn6/AER_1971_Diamond_Mirrlees_Optimal_taxation_and_public_production_II_tax_rules.pdf?dl=1)  
 Diamond, Peter and Mirrlees, James  
 1971  
 
-[The political economy of the rent-seeking society](https://www.dropbox.com/s/lwst4500t1slm04/AER_1974_Krueger_The_political_economy_of_the_rent_seeking_society.pdf?dl=0)  
+[The political economy of the rent-seeking society](https://www.dropbox.com/s/lwst4500t1slm04/AER_1974_Krueger_The_political_economy_of_the_rent_seeking_society.pdf?dl=1)  
 Krueger, Anne  
 1974  
 
