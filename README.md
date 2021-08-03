@@ -38,7 +38,7 @@ https://www.dropbox.com/s/lwst4500t1slm04/AER_1974_Krueger_The_political_economy
 
 A rational theory of the size of government 
 Meltzer and Richard (1981)  
-https://www.dropbox.com/s/6eo06nwuznvt6kg/JPE_1981_Meltzer_Richard_A_rational_theory_of_the_size_of_government.pdf?dl=0  
+https://www.dropbox.com/s/6eo06nwuznvt6kg/JPE_1981_Meltzer_Richard_A_rational_theory_of_the_size_of_government.pdf?dl=1  
 
 
 # Grabaciones
