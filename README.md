@@ -48,6 +48,11 @@ Manipulation of voting schemes: a general result
 Gibbard (1973)  
 https://www.dropbox.com/s/5ce6wcfqeugvxbd/ECTA_1973_Gibbard_Manipulation_of_voting_schemes_a_general_result.pdf?dl=1
 
+Debt and taxes  
+Miller (1977)  
+https://www.dropbox.com/s/kuqfnogi9v6fm5l/JOF_1977_Miller_Debt_and_taxes.pdf?dl=1
+
+
 # Grabaciones
 
 # Links útiles
