@@ -16,7 +16,7 @@ On-line en Meet. FIJAR LINK
 
 # Papers sugeridos
 
-[Uncertainty and the welfare economics of medical care](https://www.dropbox.com/s/2ruo37w5v02fsr2/AER_1963_Arrow_Uncertainty_and_the_welfare_economics_of_medical_care.pdf?dl=0)  
+[Uncertainty and the welfare economics of medical care](https://www.dropbox.com/s/2ruo37w5v02fsr2/AER_1963_Arrow_Uncertainty_and_the_welfare_economics_of_medical_care.pdf?dl=1)  
 Arrow, Ken  
 1963  
 
